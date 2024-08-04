@@ -1,3 +1,4 @@
 ## Hi Kyoh here 🙂🧃
 
-![image](https://github.com/user-attachments/assets/49826c6f-49af-4e40-9f8e-a4005cadd289)
+![image](https://github.com/user-attachments/assets/170a737e-6908-469a-99a7-5c96e136f8c1)
+
